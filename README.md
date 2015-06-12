@@ -11,3 +11,5 @@ http://lubo.elsys-bg.org/2015/04/23/tues_garbage_wars_with_vmware/
 https://drive.google.com/file/d/0B3np0Se6U29KUVNhUlk5cHVhLTg/view?usp=sharing​
 
 Презентацията е налична на: http://lubo.elsys-bg.org/wp-content/uploads/2015/04/TUES-Garbage-Wars-2015_April.pdf
+
+FB: https://www.facebook.com/groups/677212952390555/ - Garbage Wars 2015 TUES
